@@ -1,3 +1,5 @@
+### Hi there, I'm Malvin. 👋
+
 ## I'm a UI/UX Designer and self-taught Developer!
 
 - 🔭 I’m currently working on becoming a good Developer
